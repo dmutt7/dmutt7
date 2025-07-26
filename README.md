@@ -7,4 +7,4 @@
 ![1000084818](https://github.com/user-attachments/assets/ba67a46a-1c15-4e49-b6c1-6de9716c39f3) 
 ![1000084828](https://github.com/user-attachments/assets/790e1619-9533-4617-a782-86078f76fa0d)
 ![1000084819](https://github.com/user-attachments/assets/f1e996b4-c340-4013-b3a0-daaa03ca86d0)
-<img width="736" height="542" alt="1000086117" src="https://github.com/user-attachments/assets/70353534-e813-457f-a7ad-f9f470bd3ec7" />
+![1000086448](https://github.com/user-attachments/assets/ba7d28d8-5297-4215-acc5-b037bda3038e)
