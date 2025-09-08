@@ -8,4 +8,5 @@ __basic dni , ask permission 4 inspo .__<br/><sub>" _THROUGH GOES HAMILTON!! UNB
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=5f8f99&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![1000090693](https://github.com/user-attachments/assets/9475f990-f435-4a59-b081-9d5153a37467)
+
+![1000090709](https://github.com/user-attachments/assets/664b7347-65ff-42d0-9646-17edbdf970b2)
