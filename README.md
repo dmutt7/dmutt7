@@ -10,3 +10,4 @@ __basic dni , ask permission 4 inspo .__<br/><sub>" _THROUGH GOES HAMILTON!! UNB
 
 
 ![1000090709](https://github.com/user-attachments/assets/664b7347-65ff-42d0-9646-17edbdf970b2)
+<sub> ( _both is me.. ok?_ )<sub>
