@@ -1,6 +1,6 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=5A8691&label=woof">
-
+<br/>
 <img width="537" height="658" alt="1000088141" src="https://github.com/user-attachments/assets/2e238324-0525-4e93-acb4-cfbe7390d356"/>
 
 __basic dni , ask permission 4 inspo .__<br/><sub>" _THROUGH GOES HAMILTON!! UNBELIEVABLE!!!_ "<br/> 
