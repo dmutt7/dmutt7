@@ -7,7 +7,3 @@ __basic dni , ask permission 4 inspo .__<br/><sub>" _THROUGH GOES HAMILTON!! UNB
 [__STRAWPAGE__](https://deemutt.straw.page) • [__ATABOOK__](https://dmutt7.atabook.org/) •  [__PRONOUNS.CC__](https://pronouns.cc/@dmutt7) •  [__PATREON__](https://www.patreon.com/c/dmutt7/about)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=5f8f99&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-
-![1000090709](https://github.com/user-attachments/assets/664b7347-65ff-42d0-9646-17edbdf970b2)
-<sub> ( _both is me.. ok?_ )<sub>
