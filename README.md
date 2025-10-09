@@ -2,7 +2,9 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=5A8691&label=woof">
 <br/>
 
-<img width="1948" height="1343" alt="1000092729" src="https://github.com/user-attachments/assets/91e3e8e1-b21c-416d-860a-0de7ee947451" />
+<img width="1920" height="1080" alt="1000094601" src="https://github.com/user-attachments/assets/5e5b54aa-ae22-4106-a1a8-88a1cfccd6ec" />
+
+
 
 
 __semi - inactive ( ish ) , c + h always !__<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
