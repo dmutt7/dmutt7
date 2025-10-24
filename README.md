@@ -9,7 +9,7 @@
 
 
 
-__cuds & hugs okay!! , do not copy..__<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
+𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮 , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨!!!<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
 
 [__STRAWPAGE__](https://dmutt76.straw.page) • [__ATABOOK__](https://dmutt7.atabook.org/) •  [__PRONOUNS.CC__](https://pronouns.cc/@dmutt7) •  [__GUNS.LOL__](https://guns.lol/dmutt7)
 
