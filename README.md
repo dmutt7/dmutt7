@@ -2,7 +2,8 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=5A8691&label=stalkers">
 <br/>
 
-![1000096056](https://github.com/user-attachments/assets/dcd5987e-4a61-4794-bd00-f5d9701abced)
+![1000096057](https://github.com/user-attachments/assets/1e7863f8-55cf-47ca-8c75-356828952fe8)
+
 
 __cuds & hugs okay!! , do not copy..__<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
 
