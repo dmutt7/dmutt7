@@ -4,8 +4,7 @@
 
 <img width="1920" height="1080" alt="1000094621" src="https://github.com/user-attachments/assets/d2f20ead-c7e5-4f40-aa7d-21a2b574f988" />
 
-
-<br/>__do not copy / take inspo , c*h okay !!__<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
+<br/>__cuds & hugs okay!! , do not copy..__<br/><sub>" _i'll be your number one with a bullet . a loaded god complex , cock it and pull it !_ "<br/> 
 
 [__STRAWPAGE__](https://dmutt76.straw.page) • [__ATABOOK__](https://dmutt7.atabook.org/) •  [__PRONOUNS.CC__](https://pronouns.cc/@dmutt7) •  [__GUNS.LOL__](https://guns.lol/dmutt7)
 
