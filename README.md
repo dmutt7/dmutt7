@@ -5,7 +5,8 @@
 
 <br/>
 
-![1000096685](https://github.com/user-attachments/assets/a872080b-6b25-4658-8594-e8f23d3fedda)
+![1000096686](https://github.com/user-attachments/assets/98d07169-aeb3-4e42-b81e-e46a4a72cc1f)
+
 
 
 𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" –and anyone who ever had a heart or sang a lonesome song , would sell their little souls .. just to make it with the blonde . "_<br/> 
