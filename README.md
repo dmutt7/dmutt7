@@ -1,11 +1,13 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0d0606&label=stalkers">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=C9931F&label=stalkers">
 <br/>
 
 
 <br/>
 
-![1000096704](https://github.com/user-attachments/assets/eddd5771-bb0a-42e5-883b-f65289ab3877)
+![1000096955](https://github.com/user-attachments/assets/2a1a70c0-6b52-4ec1-8d14-3af4ae7a5f22)
+
+
 
 
 
