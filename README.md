@@ -10,7 +10,7 @@
 
 
 
-𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" out of the RED , out of her head , she sang ..."_<br/> 
+𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" not now , not ever , no , it's never a good time .. how will the good times ever roll on ? "_<br/> 
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt76.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
 
