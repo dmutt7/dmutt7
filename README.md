@@ -5,13 +5,7 @@
 
 <br/>
 
-![1000100687](https://github.com/user-attachments/assets/13a69849-f56b-4288-a937-79557ee0d442)
-
-
-
-
-
-
+![1000100703](https://github.com/user-attachments/assets/d38853fa-9f78-4eff-a589-9e3b9b4a7aba) <br/>
 𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" a drag path etched in the surface , can you find me ?  "_<br/> 
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt76.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
