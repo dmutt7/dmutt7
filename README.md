@@ -4,7 +4,8 @@
 
 <br/>
 
-<img width="807" height="610" alt="1000103103" src="https://github.com/user-attachments/assets/9e631729-65cd-477d-8d60-175f01389897" />
+<img width="403" height="305" alt="1000103106" src="https://github.com/user-attachments/assets/9bdddddb-e0c5-4197-9404-3dbb41856abe" />
+
 
 
 <br/>𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" because love .. can burn like a cigarette . "_<br/> 
