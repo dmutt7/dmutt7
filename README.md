@@ -1,10 +1,11 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=FF7A01&label=chilies">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=FE5E4E&label=chilies">
 <br/>
 
 <br/>
 
-<img width="403" height="305" alt="1000103107" src="https://github.com/user-attachments/assets/b1eaf2c1-fe66-40f0-9c9f-45afd48d1f98" />
+<img width="400" height="400" alt="1000103659" src="https://github.com/user-attachments/assets/04324ddf-76fc-42b2-a50b-1df5caf2b4a8" />
+
 
 
 
@@ -13,4 +14,4 @@
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt76.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EBF607&interchange=false&bar_color=EBF607&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EBF607&interchange=false&bar_color=FF7C71bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
