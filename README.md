@@ -6,7 +6,7 @@
 
 ![1000104413](https://github.com/user-attachments/assets/d6fb8760-639c-4370-924b-569a4f4b9944)
 
-𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙤𝙠𝙖𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" but it's just the price i pay , destiny is calling me .. "_<br/> 
+𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" but it's just the price i pay , destiny is calling me .. "_<br/> 
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt07.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
 
