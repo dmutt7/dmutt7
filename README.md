@@ -10,7 +10,7 @@
 
 
 
-𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮... , 𝙙𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙥𝙡𝙨 !!!<br/><sub>_" you leave me in the night when you refuse to lose ... "_<br/> 
+𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮... , 𝗳𝟭 𝗳𝗮𝗻𝘀 𝗶𝗻𝘁 !!!<br/><sub>_" you leave me in the night when you refuse to lose ... "_<br/> 
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt07.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
 
