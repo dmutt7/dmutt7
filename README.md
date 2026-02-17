@@ -1,10 +1,10 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=FE8306&label=koaladogs">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0050E5&label=koaladogs">
 <br/>
 
 <br/>
 
-![18323](https://github.com/user-attachments/assets/01713ea2-b587-4bc5-85af-d96bae39d898)
+![19171](https://github.com/user-attachments/assets/fee0bd7d-a5ba-4b1e-8f19-2c13ab288fe6)
 
 
 
