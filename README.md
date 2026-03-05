@@ -10,7 +10,7 @@
 
 
 
-𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮... , 𝗳𝟭 𝗳𝗮𝗻𝘀 𝗶𝗻𝘁 !!!<br/><sub>_" you'll see me waiting for you on the corner of the street ... "_<br/> 
+𝙘𝙪𝙙𝙨 𝙖𝙣𝙙 𝙝𝙪𝙜𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮... , 𝗳𝟭 𝗳𝗮𝗻𝘀 𝗶𝗻𝘁 !!!<br/><sub>_" she says that i'm a star, that i won't last ... :(( "_<br/> 
 [𝙨𝙩𝙧𝙖𝙬](https://dmutt07.straw.page) • [𝙖𝙩𝙖](https://dmutt7.atabook.org/) •  [𝙥𝙧𝙣𝙨𝙥𝙖𝙜𝙚](https://en.pronouns.page/@dmutt7) •  [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7)
 
 
