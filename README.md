@@ -1,10 +1,11 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0B0606&label=koaladogs">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=00141F&label=koaladogs">
 <br/>
 
 <br/>
 
-![21919](https://github.com/user-attachments/assets/1acb22b2-5eba-4e6d-82c9-a0faba413b51)
+![16125](https://github.com/user-attachments/assets/0ba00f49-9a9e-4f7f-9972-3211580eb4e3)
+
 
 
 
@@ -15,4 +16,4 @@
 ⛔ : 𝗼𝗻𝗹𝗶𝗻𝗲 / 𝗯𝘂𝘀𝘆 ,, 🌙 : 𝗼𝘂𝘁𝘀𝗶𝗱𝗲 / 𝗮𝗳𝗸
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=F75C1E&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=19B7DA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
