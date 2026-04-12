@@ -1,11 +1,10 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=00141F&label=dogs">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=FFDF2C&label=dogs">
 <br/>
 
 <br/>
 
-![16125](https://github.com/user-attachments/assets/0ba00f49-9a9e-4f7f-9972-3211580eb4e3)
-
+<img width="396" height="396" alt="27498" src="https://github.com/user-attachments/assets/4514ff57-f537-4c2b-8b51-44cd7b11419f" />
 
 
 
@@ -16,4 +15,4 @@
 ⛔ : 𝗼𝗻𝗹𝗶𝗻𝗲 / 𝗯𝘂𝘀𝘆 ,, 🌙 : 𝗼𝘂𝘁𝘀𝗶𝗱𝗲 / 𝗮𝗳𝗸
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=19B7DA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=FFDF2C&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
