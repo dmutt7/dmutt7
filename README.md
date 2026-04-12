@@ -1,10 +1,11 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=2CCDFF&label=dogs">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=3C1A14&label=dogs">
 <br/>
 
 <br/>
 
-<img width="396" height="258" alt="27514" src="https://github.com/user-attachments/assets/9161041e-0842-42c6-a295-180ec29588fa" />
+<img width="396" height="260" alt="27516" src="https://github.com/user-attachments/assets/ca975362-987e-42e4-90f2-b1d66cb8d960" />
+
 
 
 
