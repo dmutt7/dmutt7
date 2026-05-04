@@ -3,15 +3,17 @@
 <br/>
 
 <br/>
-
-<img width="308" height="308" alt="30402" src="https://github.com/user-attachments/assets/5c18d433-9ba3-4ae6-a269-0f03cac0d80e" />
-
+<img width="216" height="384" alt="30410" src="https://github.com/user-attachments/assets/212c0b55-ab2e-4ab7-a0be-7e90d4c799dc" />
 
 
 
 
 
-<br/><sub>_" hail mary , full of grace ... "_<br/> 
+
+
+
+
+<br/><sub>_" give all you've got ... under the moonlight ! "_<br/> 
 ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/carcar)  :  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/) : [𝙥𝙧𝙣𝙨.𝙘𝙘](https://pronouns.cc/@dmutt7)   :   [𝙜𝙪𝙣𝙨.𝙡𝙤𝙡](https://guns.lol/dmutt7) ଓ
 
 
