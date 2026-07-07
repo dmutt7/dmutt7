@@ -4,9 +4,9 @@
 <br/>
 <img width="330" height="271" alt="38216" src="https://github.com/user-attachments/assets/48f32eb0-5eaf-4f03-bc5c-c84a8fb2fc64" />
 <br/>
-<br/>
-
-  @ safe serv #1 : dont copy / take inspo or ill KILL YOU
+<br/
+  
+  @ safe serv #1 : dncopy / take inspo
 <br/><sub>_" i could do it . i'd wait a hundred years . would you wait for me ? "_<br/> 
 ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/carcar)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)  :  [𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚](https://dmutt07.straw.page/) ଓ
 
