@@ -2,7 +2,8 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=dogs">
 <br/>
 <br/>
-<img width="330" height="271" alt="38216" src="https://github.com/user-attachments/assets/48f32eb0-5eaf-4f03-bc5c-c84a8fb2fc64" />
+<img width="290" height="189" alt="39110" src="https://github.com/user-attachments/assets/2f802509-535a-4c47-b8c3-1f0084fbe2dc" />
+
 <br/>
 <br/
   
