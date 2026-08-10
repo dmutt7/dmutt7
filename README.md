@@ -15,4 +15,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=16DDF5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-( do not copy / take inspo , always afk )
+( i mainly talk 2 friends , not so much 2 strangers )
