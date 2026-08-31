@@ -8,7 +8,7 @@
 <br/>
 <br/
   
-  @ safe serv #1 : hiatus !! only on for frens
+  @ safe serv #1 : hiatus !!! -15 dni
 <br/><sub>_" get the final blow in first , whatever gets the win ! "_<br/> 
 ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/6381)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)  :  [𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚](https://dmutt07.straw.page/) ଓ
 
