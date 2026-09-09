@@ -16,4 +16,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=16DDF5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-( i only follow close friends )
+( i only follow close friends or people i frequently cuddle with )
