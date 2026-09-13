@@ -9,7 +9,7 @@
 <br/>
 <br/
   
-  @ safe rus #2 : -15 dni !!! c+h ok
+  @ safe serv #1 : -15 dni !!! c+h ok
 <br/><sub>_" get the final blow in first , whatever gets the win ! "_<br/> 
 ᨳ [𝙛𝙡𝙪𝙛𝙛𝙡𝙚.𝙘𝙘](https://fluffle.cc/8155)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)  :  [𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚](https://dmutt07.straw.page/) ଓ
 
