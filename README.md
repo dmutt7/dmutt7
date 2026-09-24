@@ -16,6 +16,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=16DDF5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-i only follow cfs here , bmf and c+h with me then ill follow ok? ok
+i only follow cfs here , talk and c+h with me then ill follow ok? ok
 
-if not cfs ill follow on my other account ty
+if not cfs ill follow on my alt account... ok
