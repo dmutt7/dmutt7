@@ -18,4 +18,4 @@
 
 i only follow cfs here , talk and c+h with me then ill follow ok? ok
 
-if not cfs ill follow on my alt account... ok
+no roleplaying, i'm not comfortable with that.
