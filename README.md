@@ -1,13 +1,13 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=dogs">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=points">
 <br/>
 <br/>
-<img width="275" height="165" alt="23327" src="https://github.com/user-attachments/assets/7090af06-46af-44d5-a05c-deb7e972a378" />
+<img width="540" height="432" alt="41453" src="https://github.com/user-attachments/assets/d4051159-c790-4c8f-88af-bdc25dc35810"/>
 
 
 
 <br/>
-<br/
+<br/>
   
   @ safe serv #1 : -15 dni !!! c+h ok
 <br/><sub>_" get the final blow in first , whatever gets the win ! "_<br/> 
@@ -15,7 +15,5 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpvy7u3a5ewsaqd808vwnxcls&cover_image=true&theme=natemoo-re&show_offline=false&background_color=00C13A&interchange=false&bar_color=16DDF5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-i only follow cfs here , talk and c+h with me then ill follow ok? ok
 
 no roleplaying, i'm not comfortable with that.
