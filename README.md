@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=points">
 <br/>
 <br/>
-<img width="540" height="432" alt="41453" src="https://github.com/user-attachments/assets/d4051159-c790-4c8f-88af-bdc25dc35810"/>
+<img width="300" height="225" alt="41453" src="https://github.com/user-attachments/assets/d4051159-c790-4c8f-88af-bdc25dc35810"/>
 
 
 
