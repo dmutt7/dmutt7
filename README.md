@@ -1,8 +1,10 @@
 <div align="center">
-<img src="https://komarev.com/ghpvc/?username=dmutt7&color=34F8FF&label=points">
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=001BD2&label=points">
 <br/>
   
-<img width="400" alt="do not copy or take inspo" src="https://github.com/user-attachments/assets/bcff20c6-b4eb-4168-be27-1ba5405b7543" />
+<img width="400" alt="do not copy or take inspo" src="https://github.com/user-attachments/assets/609ac610-ff16-4251-aa23-4cee94235462" />
+
+
 
 
 <br/>
