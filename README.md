@@ -3,10 +3,7 @@
 <br/>
 <br/>
   
-![donottakeinspo](https://files.catbox.moe/cvgrlg.gif)
-
-
-
+<img width="500" alt="do not copy or take inspo" src="https://github.com/user-attachments/assets/cbefc327-bde5-4ecd-80a3-7c061a09ce48" />
 <br/>
 <br/>
   
