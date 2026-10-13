@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=points">
 <br/>
 <br/>
-<img width="512" height="384" alt="54475" src="https://files.catbox.moe/cvgrlg.gif" />
+<img width="512" height="384" alt="54475" src="https://files.catbox.moe/cvgrlg.gif"/>
 
 
 
