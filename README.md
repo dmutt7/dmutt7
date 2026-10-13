@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=points">
 <br/>
   
-<img width="500" alt="do not copy or take inspo" src="https://github.com/user-attachments/assets/bb998bce-ca5d-4937-8f32-a2f557915a5b" />
+<img width="400" alt="do not copy or take inspo" src="https://github.com/user-attachments/assets/bb998bce-ca5d-4937-8f32-a2f557915a5b" />
 <br/>
   
   @ safe serv #1 : -15 dni !!! c+h ok
