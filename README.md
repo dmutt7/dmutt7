@@ -10,7 +10,7 @@
 <br/>
   
   @ safe serv #1 : -15 dni/iwc...
-<br/><sub>_" lemon boy and i , we're  gonna live ... forvever !!!"_<br/> 
+<br/><sub>_" you've got a front row seat , and i.. i got a taste of the glamorous life!!"_<br/> 
 ᨳ ‎ [𝙛𝙡𝙪𝙛𝙛𝙡𝙚.𝙘𝙘](https://fluffle.cc/8155)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)  :  [𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚](https://dmutt07.straw.page/) ‎ ଓ
 
 
