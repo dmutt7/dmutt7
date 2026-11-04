@@ -19,4 +19,4 @@
 [@LANDO-NORRlS](https://github.com/LANDO-NORRlS) [@OLIVER-BEARMAN](https://github.com/OLIVER-BEARMAN)
 (evil alt accounts...)
 
-[HALL OF SHAME.](https://deefriends.straw.page/)
+[HALL OF SHAME...kinda](https://deefriends.straw.page/)
